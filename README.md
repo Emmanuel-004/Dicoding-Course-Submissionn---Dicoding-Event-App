@@ -1,1 +1,1 @@
-# Dicoding-Course-Submissionn---Dicoding-Event-App
+# Dicoding-Course-Submission---Dicoding-Event-App
